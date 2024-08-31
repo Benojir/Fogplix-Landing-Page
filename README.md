@@ -1,1 +1,1 @@
-# FogPlix Official Landing Page Website
+# Fogplix Anime Official Landing Page Website
